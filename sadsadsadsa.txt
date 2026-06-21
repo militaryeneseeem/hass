@@ -1,5 +1,5 @@
-gojo
-satoru
-jujutsu
-kaisen
-jjk
+/gojo/
+/satoru/
+/jujutsu/
+/kaisen/
+/jjk/
