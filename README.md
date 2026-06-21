@@ -1,5 +1,1 @@
-gojo
-satoru
-jujutsu
-kaisen
-jjk
+OR*SPU C*C*ĞU ENGELLEME SİSTEMİ İÇİN DATABASE.
